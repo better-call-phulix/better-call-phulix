@@ -14,7 +14,7 @@ DNI . basic dni , tut ponies , roleplays , exes/former friends , flirt jokes fro
 </p>
 
 <p align="center">
-INTERESTS . hsr , jjba , cookie run , mbti , beastars , aggretsuko , breaking bad/better call saul , big bang theory <3 , any piece of literature ! 
+INTERESTS . hsr , jjba , ennead , cookie run , mbti , beastars , aggretsuko , breaking bad/better call saul , big bang theory <3
 </p>
 <p align="center">
 INT . fellow fils , same interests , sampo/gepard fans wya !!?
